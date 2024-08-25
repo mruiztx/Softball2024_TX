@@ -1,2 +1,2 @@
-# Softball2024_TX
+# Softball2024
 SBGSA Softball Team 2024
